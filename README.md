@@ -1,0 +1,2 @@
+# Baru
+Newbie Is Here
